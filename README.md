@@ -22,7 +22,6 @@ Mis herramientas favoritas son Apple Notes, Goodnotes y Visual Studio Code (por 
 **Datos curiosos:**
 + 🐈Tengo 4 gatitos
 + ☕Me encanta el café y el matcha
-+ 😮‍💨No tengo Tiktok
 + 🎧Me gusta crear contenido en youtube de ASMR
 + 🤍Hobbies: anime, gimnasio, leer, crear cosas, juegos de mesa, pintar en acuarela
 
